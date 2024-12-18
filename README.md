@@ -1,0 +1,1 @@
+# Patikaögrenci2
